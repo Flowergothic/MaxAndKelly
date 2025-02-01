@@ -33,6 +33,8 @@ Collantine, K. (2013, January 26). _“I should have won ’86, he should have w
 
 Collantine, K. (2014, December 3). _FIA to prevent more Verstappen-like moves with new F1 age limit_. RaceFans. https://www.racefans.net/2014/12/03/fia-moves-block-future-verstappens-f1-age-limit/
 
+Colón, A. (2021, July 7). Must read: “Vogue” Netherlands closes, Bloomingdale’s announces retail spinoff. Fashionista. https://fashionista.com/2021/07/vogue-netherlands-to-close
+
 _Cooking school courses canceled as CEO lands in jail_. (2018, August 31). FOX 5 New York. https://www.fox5ny.com/news/cooking-school-courses-canceled-as-ceo-lands-in-jail
 
 CQ. (2015, January 10). _On fun-sized advice_. Dear Coquette. http://dearcoquette.com/on-fun-sized-advice-144/
