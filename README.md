@@ -125,6 +125,8 @@ Noble, J. (2013, October 21). _Daniil Kvyat gets 2014 Toro Rosso Formula 1 seat_
 
 O’Brien, J. (2015, March 29). _Motor racing-Verstappen adds another record with first F1 points_. Reuters UK. https://web.archive.org/web/20160719195231/http://uk.reuters.com/article/motor-racing-prix-verstappen-idUKL3N0WV0A120150329
 
+Oliveira, C. (2023, March 29). Bolsonaro used Nelson Piquet’s property to store jewelry and other “gifts”, says newspaper. Brasil de Fato. https://www.brasildefato.com.br/2023/03/29/bolsonaro-used-nelson-piquet-s-property-to-store-jewelry-and-other-gifts-says-newspaper
+
 Patoine, B. (2018, October 9). _The abused brain_. Dana Foundation. https://dana.org/article/the-abused-brain/
 
 Pedroso, R. (2021, October 27). _Brazilian commission votes in favor of recommending criminal charges against Bolsonaro_. CNN. https://www.cnn.com/2021/10/26/americas/brazil-bolsonaro-covid-cpi-vote-intl-latam/index.html
