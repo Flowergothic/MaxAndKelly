@@ -57,6 +57,8 @@ Fedorov, A. (2023). _A compendium of media nepotism_. The Fine Print. https://th
 
 _Florida Winter Series_. (2013). Florida Winter Series. https://web.archive.org/web/20131221195456/http://floridawinterseries.com/Series_Info.html
 
+Gallagher, M. (2021, November 10). The climate race: Sustainability lessons from Formula One. CMI. https://www.managers.org.uk/knowledge-and-insights/article/the-climate-race-sustainability-lessons-from-formula-one/
+
 Galloway, J. (2015, December 7). _Lewis Hamilton & Mercedes officially crowned 2015 world champions_. Sky Sports. https://www.skysports.com/f1/news/24181/10087594/lewis-hamilton-mercedes-officially-crowned-2015-world-champions
 
 GMM. (2014, August 28). _Early debut for teen Verstappen “really bad” - Salo_. Motorsport.com. https://www.motorsport.com/f1/news/early-debut-for-teen-verstappen-really-bad-salo/455874/
@@ -92,6 +94,8 @@ Koning, G. (2022, October 2). _Exclusief interview met Kelly Piquet [Exclusive i
 Kosmides, K. (2024, August 23). _Grooming: Know the warning signs_. Helping Survivors. https://helpingsurvivors.org/grooming/warning-signs/
 
 _Kubica fourth fastest on return as Vettel sets testing pace_. (2017, August 2). Formula 1® - the Official F1® Website. https://www.formula1.com/en/latest/article/kubica-fourth-fastest-on-return-as-vettel-sets-testing-pace.4I3tP9XgnKM6euaic8qAci
+
+Mai, S. (2022, December 27). Amy Schumer shows off her physique during getaway to St Barts with her husband Chris Fischer. Mail Online; Daily Mail. https://www.dailymail.co.uk/tvshowbiz/article-11577277/Amy-Schumer-shows-physique-getaway-St-Barts-husband-Chris-Fischer.html
 
 Mandal, A. A. (2023, July 20). _“Didn’t get a dime”: Max Verstappen’s GF Kelly Piquet lashes out at haters over defamatory accusations_. EssentiallySports. https://www.essentiallysports.com/f1-news-didnt-get-a-dime-max-verstappens-gf-kelly-piquet-lashes-out-at-haters-over-defamatory-accusations/
 
@@ -172,6 +176,8 @@ Sportredactie. (2021, September 6). _Jos Verstappen tijdens race van Max in Zand
 _Stats F1_. (n.d.). https://www.statsf1.com/en/default.aspx
 
 Stuck, A. (2024, September 20). _Controlling parents: 21 signs & how to deal with them_. Choosing Therapy. https://www.choosingtherapy.com/controlling-parents/
+
+Sturm, D., Andrews, D. L., Miller, T., & Bustad, J. (2024). Green light or black flag? Greenwashing environmental sustainability in Formula One and Formula E. Annals of Leisure Research, 1–20. https://doi.org/10.1080/11745398.2024.2376754
 
 Suhalka, M. (2023, October 19). _Heartbroken Kelly Piquet wins the internet as she pays special tribute to victims of Israel-Palestine conflict_. EssentiallySports. https://www.essentiallysports.com/f1-news-red-bull-news-max-verstappen-heartbroken-kelly-piquet-wins-the-internet-as-she-pays-special-tribute-to-victims-of-israel-palestine-conflict/
 
