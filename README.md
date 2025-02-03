@@ -49,6 +49,8 @@ Edwards, B. (2023, August). _F1 ace Max Verstappen and girlfriend Kelly Piquet l
 
 EFE. (1988, March 10). _Senna lamenta las declaraciones de Piquet en las que le llamó homosexual [Senna regrets Piquet’s statements in which he called him homosexual]_. El País. https://elpais.com/diario/1988/03/11/deportes/574038012_850215.html. Originally published in Portuguese.
 
+Engao, E. L. (2024, February 22). What are plastic credits? - Plastic Bank. Plasticbank.com. https://plasticbank.com/blog/what-are-plastic-credits/
+
 ESPN Staff. (2014, October 20). _Focus on mental strength is bulls*** - Max Verstappen_. ESPN UK; ESPN F1. http://en.espn.co.uk/tororosso/motorsport/story/180495.html
 
 Euronews with AP, Reuters. (2023, January 8). _Brazil investigates pro-Bolsonaro rioters who stormed political buildings_. Euronews. https://www.euronews.com/2023/01/08/pro-bolsonaro-protesters-storm-brazils-congress
@@ -76,6 +78,8 @@ Herzberg, B. (2024, May 9). _Defining Emotional Overdependency in Unhealthy Rela
 Hitt, C. (2024, February 23). _Who is Max Verstappen’s girlfriend? All about Kelly Piquet_. Peoplemag. https://people.com/sports/who-is-kelly-piquet-max-verstappen/
 
 Hoedeman, N. (Director). (2020, December). _Max Verstappen: Whatever it takes_ [TV Mini Series]. Ziggo Sport.
+
+Hughes, E. (2023, March 25). Piquet fined for racist, homophobic comments about Hamilton. AP NEWS. https://apnews.com/article/hamilton-f1-piquet-racism-1b2c2e5a90d0047f483c5d9802028744
 
 Hughes, M. (2023). _Unstoppable: The ultimate biography of Max Verstappen_. Headline.
 
@@ -110,6 +114,8 @@ Mbu, J. (2022, January 1). _Max Verstappen relaxes on holiday in Miami with stun
 Mbu, J. (2023, January 24). _Max Verstappen’s stunning girlfriend Kelly Piquet shows off amazing beach body in £15 PrettyLittleThing sw..._ The Sun. https://iframe.thesun.co.uk/sport/21146396/max-verstappen-girlfriend-kelly-piquet-swimsuit-beach-body/
 
 McLeod, D., & Flood, S. (2018, December 1). _Coercive control: Impacts on children and young people_. Www.researchinpractice.org.uk. https://www.researchinpractice.org.uk/children/publications/2018/december/coercive-control-impacts-on-children-and-young-people-in-the-family-environment-literature-review-2018/
+
+Mee, L. (2023, October 15). F1 news: Lewis Hamilton racism fine annulled as Nelson Piquet gets let off easy. F1 on SI; Sports Illustrated. https://www.si.com/fannation/racing/f1briefings/news/f1-news-lewis-hamilton-racism-fine-annulled-as-nelson-piquet-gets-let-off-easy-lm22
 
 Mitchell, R. (2023, December 29). _F1’s biggest scandals: Renault lose £40m a year after Crashgate_. RacingNews365. https://racingnews365.com/f1s-biggest-scandals-renault-lose-ps40m-a-year-after-crashgate
 
@@ -180,6 +186,8 @@ Stuck, A. (2024, September 20). _Controlling parents: 21 signs & how to deal wit
 Sturm, D., Andrews, D. L., Miller, T., & Bustad, J. (2024). Green light or black flag? Greenwashing environmental sustainability in Formula One and Formula E. Annals of Leisure Research, 1–20. https://doi.org/10.1080/11745398.2024.2376754
 
 Suhalka, M. (2023, October 19). _Heartbroken Kelly Piquet wins the internet as she pays special tribute to victims of Israel-Palestine conflict_. EssentiallySports. https://www.essentiallysports.com/f1-news-red-bull-news-max-verstappen-heartbroken-kelly-piquet-wins-the-internet-as-she-pays-special-tribute-to-victims-of-israel-palestine-conflict/
+
+Sustainable Fashion Forum. (2024, November 16). Quick question: Why can’t we just recycle our old clothes? The Sustainable Fashion Forum. https://www.thesustainablefashionforum.com/pages/quick-question-why-cant-clothes-just-be-recycled
 
 Tanasugarn, A. (2023). _Hyper-Independence: Is it a trauma response?_ Psychology Today. https://www.psychologytoday.com/us/blog/understanding-ptsd/202306/hyper-independence-is-it-a-trauma-response
 
