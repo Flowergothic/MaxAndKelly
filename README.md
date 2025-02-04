@@ -11,6 +11,8 @@ Benson, A. (2014, October 3). Nico Rosberg heads Lewis Hamilton in Japan practic
 
 Benson, A. (2022, June 29). Lewis Hamilton: Nelson Piquet apologises for “ill-thought-out” racially abusive language about British driver. _BBC Sport_. https://www.bbc.com/sport/formula1/61983866
 
+Bobker, K. (2024, April 21). What should I be mindful of when taking photos in the UAE? The National. https://www.thenationalnews.com/business/money/2024/04/21/what-should-i-be-mindful-of-when-taking-photos-in-the-uae/
+
 Bovee, B. (2023, January 19). _My Institute for Integrative Nutrition review_. Honest & Well. https://www.honestandwell.com/institute-for-integrative-nutrition-review-2/
 
 Bradley, C. (2019, November 18). _Massa: Tuka Rocha died “a hero” for trying to save child’s life_. Motorsport.com. https://www.motorsport.com/stock-car-pro/news/felipe-massa-tuka-rocha-died-hero/4599608/
@@ -48,6 +50,8 @@ Dubinsky, Z. (2022, April 11). _Money manager for ultra-rich has almost $5M tax 
 Edwards, B. (2023, August). _F1 ace Max Verstappen and girlfriend Kelly Piquet land in Sardinia by private jet following his..._ Mail Online; Daily Mail. https://www.dailymail.co.uk/tvshowbiz/article-12361179/F1-ace-Max-Verstappen-girlfriend-Kelly-Piquet-land-Sardinia-private-jet-following-eighth-straight-victory-Belgian-Grand-Prix.html
 
 EFE. (1988, March 10). _Senna lamenta las declaraciones de Piquet en las que le llamó homosexual [Senna regrets Piquet’s statements in which he called him homosexual]_. El País. https://elpais.com/diario/1988/03/11/deportes/574038012_850215.html. Originally published in Portuguese.
+
+Emirates Of Abu-Dhabi Judicial Department. (2011). Penal code. Abu Dhabi Emirate Of Abu-Dhabi. Judicial Department.
 
 Engao, E. L. (2024, February 22). What are plastic credits? - Plastic Bank. Plasticbank.com. https://plasticbank.com/blog/what-are-plastic-credits/
 
@@ -98,6 +102,8 @@ Koning, G. (2022, October 2). _Exclusief interview met Kelly Piquet [Exclusive i
 Kosmides, K. (2024, August 23). _Grooming: Know the warning signs_. Helping Survivors. https://helpingsurvivors.org/grooming/warning-signs/
 
 _Kubica fourth fastest on return as Vettel sets testing pace_. (2017, August 2). Formula 1® - the Official F1® Website. https://www.formula1.com/en/latest/article/kubica-fourth-fastest-on-return-as-vettel-sets-testing-pace.4I3tP9XgnKM6euaic8qAci
+
+Louise, C. (2024, February 28). Max Verstappen’s model partner Kelly Piquet looks sensational in black and white gym kit as she... Mail Online; Daily Mail. https://www.dailymail.co.uk/tvshowbiz/article-13137465/Kelly-Piquet-Dubai-Formula-1-Gulf-Air-Bahrain-Grand-Prix-2024.html
 
 Mai, S. (2022, December 27). Amy Schumer shows off her physique during getaway to St Barts with her husband Chris Fischer. Mail Online; Daily Mail. https://www.dailymail.co.uk/tvshowbiz/article-11577277/Amy-Schumer-shows-physique-getaway-St-Barts-husband-Chris-Fischer.html
 
@@ -179,6 +185,8 @@ Sky Sports. (2022, June 30). _Nelson Piquet apologises to Lewis Hamilton over co
 
 Sportredactie. (2021, September 6). _Jos Verstappen tijdens race van Max in Zandvoort naar ziekenhuis: “Hij heeft hem online zien winnen” [Jos Verstappen in hospital during Max’s race in Zandvoort: “He saw him win online”]_. AD.nl. https://www.ad.nl/formule-1/jos-verstappen-tijdens-race-van-max-in-zandvoort-naar-ziekenhuis-hij-heeft-hem-online-zien-winnen~a4348575/?referrer=https%3A%2F%2Fwww.reddit.com%2F. Originally published in Dutch.
 
+Srivastava, N. G. (2024). Ex-wife of former F1 driver launches public attack on Max Verstappen’s GF Kelly Piquet: “An awful human being.” The SportsRush. https://thesportsrush.com/f1-news-ex-wife-of-former-f1-driver-launches-public-attack-on-max-verstappens-gf-kelly-piquet-an-awful-human-being/
+
 _Stats F1_. (n.d.). https://www.statsf1.com/en/default.aspx
 
 Stuck, A. (2024, September 20). _Controlling parents: 21 signs & how to deal with them_. Choosing Therapy. https://www.choosingtherapy.com/controlling-parents/
@@ -214,6 +222,8 @@ White, J. (2015, March 15). _Australian Grand Prix 2015: As it happened_. The Te
 Whittle, H., Hamilton-Giachritsis, C., & Beech, A. (2014). In their own words: Young peoples’ vulnerabilities to being groomed and sexually abused online. _Psychology_, _05_(10), 1185–1196. https://doi.org/10.4236/psych.2014.510131
 
 Wikipedia Contributors. (2024, February 1). _2014 FIA Formula 3 European Championship_. Wikipedia; Wikimedia Foundation. https://en.wikipedia.org/wiki/2014_FIA_Formula_3_European_Championship
+
+Wilson, N. (2025, February). Dubai laws you need to know before visiting. The Independent. https://www.the-independent.com/travel/north-africa-middle-east/uae/dubai/dubai-travel-advice-uk-laws-rules-b2690328.html
 
 Winters, J. (2023, September 11). _Companies are claiming to be “plastic neutral.” Is it greenwashing?_ Grist. https://grist.org/accountability/companies-are-claiming-to-be-plastic-neutral-is-it-greenwashing/
 
